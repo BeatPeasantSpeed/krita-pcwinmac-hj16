@@ -1,4 +1,4 @@
-# 
+# Premium Krita efectos para Mac OS | Gratuito Krita efectos para PC Windows. Con editor de sombreadores y muestras de color — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
